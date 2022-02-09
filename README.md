@@ -1,1 +1,1 @@
-# globalstart
+# globalstar
